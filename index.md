@@ -7,6 +7,8 @@ Jessi Forever
 
 # 探索
 
+https://github.com/mygorgeous/mygorgeous.github.io/blob/22c706bc36287e6e49c7c6303858ddb130be0875/files/PXL_20230404_214400890.jpg
+
 媒介
 
 ### 坦培拉蛋彩（egg tempera）
